@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Logic Pro for macOS addon with advanced Logic Pro for macOS Addon | batch-rendering + lens-flare. Featuring batch-rendering and lens-flare, it's the best choice
 
 
 
